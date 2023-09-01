@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dyakovaaa1
 - 👀 I’m interested in music..
 - 🌱 I’m currently learning in university...
-- 💞️ I’m looking to collaborate on programing.
+- 💞️ I’m looking to collaborate on popular company
 - 📫 How to reach me 89515178652...
 
 <!---
